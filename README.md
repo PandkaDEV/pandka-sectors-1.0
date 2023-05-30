@@ -1,0 +1,1 @@
+# pandka-sectors-1.0
